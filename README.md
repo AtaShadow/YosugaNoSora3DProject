@@ -1,0 +1,2 @@
+# YosugaNoSora3DProject
+禁止除Sphere与缘之空3D化委员会外的任何组织或个人用于商业用途
